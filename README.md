@@ -1,7 +1,7 @@
 # ¡Booenass! Soy Mateo Zanichelli
 Tengo 16, estoy en 5to 1ra avc. 
 
-Me gusta la impresion 3D y la electronica.
+mdf lil zanik lil dinero
 
 ## :arrow_down: Info de contacto : :arrow_down:<br> 
 **Discord:** Matex32#9526 <br>
